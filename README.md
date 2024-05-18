@@ -13,7 +13,7 @@
 - 📝 I write articles on
 [https://blog-sahil5111.vercel.app/User/sahilsingh7977@gmail.com](https://blog-sahil5111.vercel.app/User/sahilsingh7977@gmail.com)
 
-- 📫 How to reach me **singh.sahil.shivkumar@gmail.com** || **sahilsingh7977@gmail.com**
+- 📫 How to reach me **singh.sahil.shivkumar@gmail.com** | **sahilsingh7977@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
